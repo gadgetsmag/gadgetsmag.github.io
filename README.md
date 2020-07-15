@@ -1,1 +1,1 @@
-# gadgetsmag.github.io
+# gadgetsmag.co
